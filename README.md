@@ -12,7 +12,7 @@
 
 - 💬 Ask me about **cyber security**
 
-- 📫 How to reach me **sasikaranmuthukumaresan@gmail.com**
+- 📫 How to reach me **0xwhitedevil - Ig**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
